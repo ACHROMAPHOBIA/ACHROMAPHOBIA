@@ -18,7 +18,7 @@ Cuddle, hide and interact whenever !!!
 The Fandoms I'm in: 
 <p align="center">
 VOCALOID • PJSK ✮ ALIEN STAGE ✮ EVANGELION ✮ MOUTHWASHING ✮ FNAF ✮ HOTLINE MIAMI ✮ ULTRAKILL ✮ GENSHIN IMPACT • HONKAI STAR RAIL ✮ DDLC ✮  COOKIE RUN ✮ MADNESS COMBAT ✮ SANRIO ✮FUNDAMENTAL PAPER EDUCATION ✮ 
-MURDERDRONES...
+MURDERDRONES
 
 
 ![image](https://orig00.deviantart.net/52a3/f/2010/191/4/0/sparkles_and_rainbows_stamp_by_youkai_hime.gif)
