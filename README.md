@@ -3,6 +3,7 @@
 </p>
 
 「 ABOUT ME 」
+
 Achroma ✮ He / They ✮ 16
 
 ENTJ - 9w8
