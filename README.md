@@ -53,7 +53,7 @@ Cuddle, hide and interact whenever !!!
 -
  
 <p align="center">
-The Fandoms I'm in: 
+Fandoms I'm in: 
 <p align="center">
 VOCALOID • PJSK ✮ ALIEN STAGE ✮ EVANGELION ✮ MOUTHWASHING ✮ FNAF ✮ HOTLINE MIAMI ✮ ULTRAKILL ✮ GENSHIN IMPACT • HONKAI STAR RAIL ✮ DDLC ✮  COOKIE RUN ✮ MADNESS COMBAT ✮ SANRIO ✮FUNDAMENTAL PAPER EDUCATION ✮ 
 MURDERDRONES
