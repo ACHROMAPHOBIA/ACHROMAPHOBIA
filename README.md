@@ -7,7 +7,7 @@
 <p align="center">
 Achroma ✮ He / They ✮ 16
 <p align="center"> 
- 11 ✮ Nov ✮ ♏︎
+ 11 ✮ Aug ✮ ♌
 <p align="center">
 ENTJ - 9w8
 <p align="center">
