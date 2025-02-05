@@ -2,6 +2,9 @@
 > ❝Beauty is terror. Whatever we call beautiful, we quiver before it.❞
 </p>
 
+![BBBB](https://github.com/user-attachments/assets/18ca3875-4e98-43b9-9184-34823301c282)
+
+
 「 ABOUT ME 」
 
 Achroma ✮ He / They ✮ 16
@@ -28,4 +31,6 @@ Stay mindful!!!
 
 [Profile picture by me]
 
+
+![BBBBBB](https://github.com/user-attachments/assets/9814e83b-2814-425f-b0da-a06aaa7be773)
 
