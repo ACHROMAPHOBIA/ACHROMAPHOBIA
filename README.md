@@ -4,7 +4,7 @@
 <p align="center">
 「 ABOUT ME 」
 <p align="center">
-You can call me Achroma / Chroma 
+Achroma ✮ He / They
 <p align="center">
 My pronouns are He / Him but I don't mind any other ones 
 <p align="center">
