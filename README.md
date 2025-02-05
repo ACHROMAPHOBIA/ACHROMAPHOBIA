@@ -68,8 +68,7 @@ MURDERDRONES
  ![BBBBBB](https://github.com/user-attachments/assets/c51749df-4efe-4951-bd26-00a921c59db8)
  
 > [!IMPORTANT]
-> I will not tolerate Racist / Homophobic behaviors, nor anything morally and legally wrong such as Pedophilia and Fetishism!! 
-Stay mindful!!! 
+> I will not tolerate Racist / Homophobic behaviors, and please weirdos DNI !! 
 
 
 
