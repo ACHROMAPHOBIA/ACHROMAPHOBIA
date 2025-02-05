@@ -6,8 +6,6 @@
 <p align="center">
 Achroma ✮ He / They
 <p align="center">
-My pronouns are He / Him but I don't mind any other ones 
-<p align="center">
 ENTJ - 9w8
 <p align="center">
 Transgender ✮ Pansexual
