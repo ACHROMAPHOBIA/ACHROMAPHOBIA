@@ -14,7 +14,11 @@ ENTJ - 9w8
 Transgender ✮ Pansexual
 <p align="center">
 Cuddle, hide and interact whenever !!! 
-
+<br />
+<br />
+<br />
+<br />
+<br />
 
 ![image](https://orig00.deviantart.net/52a3/f/2010/191/4/0/sparkles_and_rainbows_stamp_by_youkai_hime.gif)
 ![image](https://64.media.tumblr.com/891e108ff3222c3e2cda855d97cdef76/tumblr_ptplhpZ3ea1y8ua8do5_100.gifv)
