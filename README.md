@@ -1,4 +1,4 @@
-❝Beauty is terror. Whatever we call beautiful, we quiver before it.❞
+> ❝Beauty is terror. Whatever we call beautiful, we quiver before it.❞
 
 About me :
 
